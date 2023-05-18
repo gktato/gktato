@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @gktato
+- 👀 I’m interested in copilot
+- 🌱 I’m currently learning managment
